@@ -1,1 +1,0 @@
-# Anti-VDM
